@@ -11,4 +11,4 @@ I am an SEC whistleblower. This repository contains evidence of:
 
 All files are authentic. Full evidentiary chain available under NDA.
 
-Contact: [你的 ProtonMail 加密邮箱] (Signal available via same)
+Contact:jiruixin.ops@proton.me (Signal available via same)
